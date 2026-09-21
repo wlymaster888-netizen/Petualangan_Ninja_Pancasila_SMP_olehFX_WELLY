@@ -1,0 +1,1 @@
+# Petualangan_Ninja_Pancasila_SMP_olehFX_WELLY
